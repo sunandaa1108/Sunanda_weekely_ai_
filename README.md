@@ -1,1 +1,1 @@
-# Sunanda_weekely_ai_
+# Sunanda_weekly_ai_
